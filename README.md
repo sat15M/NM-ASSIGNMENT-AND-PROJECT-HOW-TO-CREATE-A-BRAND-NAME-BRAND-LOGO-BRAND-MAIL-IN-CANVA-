@@ -13,6 +13,14 @@ Email newsletter:https://www.canva.com/design/DAFxoD4-dGM/dfGdeJuhn5aXCYolRDlXBg
 
 MOHAMED AFRUDEEN.A(NM ID:54DBBF58ED81AB38A9C4A226699F56C5)
 
+Blog:
+
+Facebook page:
+
+Social media poster:
+
+Email newsletter:
+
 
 MOHAMED INAMUL HASAN.M(NM ID:027F353736B43E7BB754957354AF641B)
 
@@ -29,7 +37,12 @@ MOHAMMED ASHIK.N(NM ID:797E957668A7D19BF3B47D29886E9393)
 
 Blog:https://tea0clock.blogspot.com/2023/10/science-is-interdisciplinary-field-that.html
 
+Facebook page:https://m.facebook.com/story.php?story_fbid=pfbid0tmKfDxonGw2UD1g5B6YeHRDPyhbPa5aKkHupqVXUt7KjyTE6dTcCugvP6Zy9C7Zql&id=61552760676918&mibextid=Nif5oz
+
+Social media poster:https://www.linkedin.com/in/ink-and-pages-7a8901298?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+
 Email newsletter:https://www.canva.com/design/DAFyp5efG5A/VL6nu0jFyxQwD4EmjuU9eA/view?utm_content=DAFyp5efG5A&utm_campaign=designshare&utm_medium=link&utm_source=editor
+
 
 
 NM-PROJECT(HOW TO CREATE A BRAND NAME,BRAND LOGO AND BRAND EMAIL IN CANVA)
