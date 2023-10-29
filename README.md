@@ -11,15 +11,17 @@ Social media poster:https://www.linkedin.com/in/the-dog-kingdom-062569298?utm_so
 Email newsletter:https://www.canva.com/design/DAFxoD4-dGM/dfGdeJuhn5aXCYolRDlXBg/view?utm_content=DAFxoD4-dGM&utm_campaign=designshare&utm_medium=link&utm_source=editor
 
 
+
 MOHAMED AFRUDEEN.A(NM ID:54DBBF58ED81AB38A9C4A226699F56C5)
 
-Blog:
+Blog:https://tea0clock.blogspot.com/2023/10/afsal-chocolate.html
 
-Facebook page:
+Facebook page:https://www.facebook.com/profile.php?id=61553151080499
 
-Social media poster:
+Social media poster:https://www.linkedin.com/in/afsal-chocolates-b6a691298?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 
-Email newsletter:
+Email newsletter:https://www.canva.com/design/DAFyqK7HqEU/KGXQWS-qhYoQ9ddJM4UTmA/edit?utm_content=DAFyqK7HqEU&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
 
 
 MOHAMED INAMUL HASAN.M(NM ID:027F353736B43E7BB754957354AF641B)
@@ -31,6 +33,7 @@ Facebook page:https://www.facebook.com/photo/?fbid=122101469996093675&set=a.1221
 Social media poster:https://www.linkedin.com/posts/slow-track-watches-7255a6298_slow-track-watches-experience-the-magic-activity-7124388791733096448-CxPe?utm_source=share&utm_medium=member_android
 
 Email newsletter:https://www.canva.com/design/DAFypMtDo60/HIPQF2pB4APAe3nAj5ockQ/edit?utm_content=DAFypMtDo60&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
 
 
 MOHAMMED ASHIK.N(NM ID:797E957668A7D19BF3B47D29886E9393)
