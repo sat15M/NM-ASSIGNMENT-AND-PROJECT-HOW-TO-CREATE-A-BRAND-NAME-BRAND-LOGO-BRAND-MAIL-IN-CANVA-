@@ -62,7 +62,7 @@ BRAND NAME:https://www.canva.com/design/DAFxZgv_yCQ/CzfuCfIGbZ_00lExE3c8fw/edit?
 
 BRAND LOGO:https://www.canva.com/design/DAFxZsed3PI/imBvDQVcHhkvRK6TIgpA-Q/edit?utm_content=DAFxZsed3PI&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
-BRAND MAIL ID:auraperfumes03@gmai.com
+BRAND MAIL ID:auraperfumes03@gmail.com
 
 
 
