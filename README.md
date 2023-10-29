@@ -27,6 +27,10 @@ Email newsletter:https://www.canva.com/design/DAFypMtDo60/HIPQF2pB4APAe3nAj5ockQ
 
 MOHAMMED ASHIK.N(NM ID:797E957668A7D19BF3B47D29886E9393)
 
+Blog:https://tea0clock.blogspot.com/2023/10/science-is-interdisciplinary-field-that.html
+
+Email newsletter:https://www.canva.com/design/DAFyp5efG5A/VL6nu0jFyxQwD4EmjuU9eA/view?utm_content=DAFyp5efG5A&utm_campaign=designshare&utm_medium=link&utm_source=editor
+
 
 NM-PROJECT(HOW TO CREATE A BRAND NAME,BRAND LOGO AND BRAND EMAIL IN CANVA)
 
